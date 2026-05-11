@@ -1,4 +1,4 @@
-
+Get the ultimate Gimp for macOS preset with Gimp for macOS premium Preset - AI-assisted design and non-destructive editing. Featuring AI-assisted design and non-destructive
 
 
 
